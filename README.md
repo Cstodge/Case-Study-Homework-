@@ -1,4 +1,4 @@
-TouchBistro; driving one of our oldest and truest industries into a technological Renaissance
+TouchBistro; driving one of our oldest and truest industries through a technological Renaissance
 
 TouchBistro, HQ’d in Toronto was founded in 2010, has continued to excel tremendously into the 2020s. Helping restaurants in several types of ways before and after the industry was crippled by the epidemic. Here is a list of the executive team; who owns and operates the company by name and position.  Alex Barrotti (CEO), Geordie Konrad (COO), John Doolittle (CFO), Anthony Cozzi (CRO), Aris Zakinthinos (CTO), Paul Snelson (VP Sales).Alex Barotti is the CEO along with the name written below. It’s the top grossing POS (point of sale company out of 37 countries and has helped over 100. (Source: Relay ventures https://www.youtube.com/watch?v=MkKDURB_r8Y&t=93s). TouchBistro has over 450 employees, over 6 pillar offers of technology restaurant owners of all kinds, and have raised over 158 million dollars in seed money. TouchBistro after onboarding 16,000 restaurants in over 100 different companies received has raised funding from huge names like OMERS, Barclays Bank, BMO, and even more private firms such as Kensington Private Partners. With offices in Toronto, Austin, Chicago, Mexico City and London they have a bright future while experts in the food industry are predicting a technological ‘renaissance’ to come. (Especially while living in a touch-less pandemic).
 
@@ -24,3 +24,4 @@ https://top-posproviders.com/restaurant-canada/?gclid=Cj0KCQiA4b2MBhD2ARIsAIrcB-
 https://www.touchbistro.com/press-releases/touchbistro-recognized-as-one-of-canadas-top-growing-companies-by-the-globe-and-mail/
 
 https://www.tryotter.ca/secret-sauce?utm_source=adwords&utm_medium=cpc&utm_campaign=ca_ca_nationwide&utm_term=Touchbistro&gclid=Cj0KCQiA4b2MBhD2ARIsAIrcB-RvmKd0Z7j4Q3_aZftpluM9KiRTAkwjWRiZFZxc0LsJsHdXfrJxgGwaAuffEALw_wcB
+
